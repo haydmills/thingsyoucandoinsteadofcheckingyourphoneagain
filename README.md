@@ -14,6 +14,14 @@ Communication
 DIY
 - build a treehouse
 - build a birdhouse
+- knit a scarf
+
+Learning
+- Read a book
+- Read a magazine
+- Read poetry
+- Read a comic book
+- Read a story to a child
 
 Outside
 - go for a run
